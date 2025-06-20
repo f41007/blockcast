@@ -1,2 +1,6 @@
-# blockcast
-is game changer
+# For Tutorial Garapan Blockcast
+silahkan ke 
+<a href="https://lebihke-airdrop.blogspot.com/"> Lebihke Airdrop Blog <a>
+
+Anda juga bisa Join Telegram Kami Untuk Garapan Airdrop Lebih Banyak
+<a href="https://t.me/lebihkeairdrop"> Telegram Lebihke Airdrop<a>
