@@ -1,4 +1,4 @@
-# For Tutorial Garapan Blockcast
+# Untuk Tutorial Garapan
 silahkan ke 
 <a href="https://lebihke-airdrop.blogspot.com/"> Lebihke Airdrop Blog <a>
 
